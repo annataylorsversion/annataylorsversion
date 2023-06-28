@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @annataylorsversion
+- 👋 Hi, I’m anna
 - 👀 I’m interested in see new things and of course learn new things.
 - 🌱 I’m currently learning english and things about the world of tennis, I'm a tennis player and I love everything related to it
 - 📫 you can talk to me on my instagram @eu_anavit
